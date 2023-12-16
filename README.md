@@ -1,14 +1,14 @@
 # Katherine Wu
-### Student
+### _Student_
 ### High School of Telecommunications Arts and Technology
 
-## Bio
-i am a **student** at _telecomunications_ and enjoying my life as of **right now!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!**
+## **Bio**
+i am a **student** at _telecomunications_ and studying a lot **right now!**
 
 
 [katherinew30@nycstudents.net](google.com)
 
-### Schedule
+### **Schedule**
 1. Weight training
 2. Spanish
 3. AP world
@@ -18,23 +18,18 @@ i am a **student** at _telecomunications_ and enjoying my life as of **right now
 7. ELA
 8. LUNCH
 
-MOST FAVORITE TO LEAST
+**MOST FAVORITE TO LEAST**
 
-ELA
+**ELA**
 
-SEP
+**SEP**
 
-WEIGHT TRAINING
+**WEIGHT TRAINING**
 
-CHEMISTRY
+**CHEMISTRY**
 
-ALGEBRA 2
+**ALGEBRA 2**
 
-AP WORLD
+**AP WORLD**
 
-SPANISH
-
-
-
-
-
+**SPANISH**
